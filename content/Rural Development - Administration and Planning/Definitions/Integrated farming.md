@@ -1,0 +1,1 @@
+Integrated farming is a form of agriculture aimed at minimizing the use of inputs from outside the farm by implementing a variety of production enterprises, long and diversified crop rotations, crop residue or animal excreta restitution to the soil.
